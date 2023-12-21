@@ -5,3 +5,4 @@
 - When I am online, I am an expert on Mac. (I can tell you, M3 is a good upgrade from M1)
 - I also believe Mac better than Windows for work (but definitely not gaming)
 - GPTK is annoying to deal with.
+- Contact me via BokBoyGamer@gmail.com
