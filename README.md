@@ -1,9 +1,1 @@
-- Hi I'm BokBoy.
-- I go by BokChoy too
-- I am a general pilot who plays Microsoft Flight Sim in the Headwind A339.
-- I also fly the A320NEO.
-- I believe Airbus is better than Boeing.
-- When I am online, I am an expert on Mac. (I can tell you, M3 is a good upgrade from M1)
-- I also believe Mac better than Windows for work (but definitely not gaming)
-- GPTK is annoying to deal with.
-- Contact me via BokBoyGamer@gmail.com
+prob gonna need to update :)
